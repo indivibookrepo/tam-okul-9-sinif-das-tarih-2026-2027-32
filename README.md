@@ -1,0 +1,1 @@
+# tam-okul-9-sinif-das-tarih-2026-2027-32
